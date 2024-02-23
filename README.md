@@ -12,3 +12,7 @@ You can click the Preview link to take a look at your changes.
 --->
 
 # Social Media
+Twitter:  Discord: 
+
+
+Code... html
